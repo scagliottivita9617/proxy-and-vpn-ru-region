@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![Download Proxy & VPN RU Region](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/proxy-and-vpn-ru-region)
+[![Download Proxy & VPN RU Region](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/SxdZJpmzd6lMyUY0U)
 
 </div>
 
@@ -129,7 +129,7 @@
 
 <div align="center">
 
-[![Download Proxy & VPN RU Region](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/proxy-and-vpn-ru-region)
+[![Download Proxy & VPN RU Region](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/SxdZJpmzd6lMyUY0U)
 
 </div>
 
@@ -296,7 +296,7 @@ Access the open internet for free. **Proxy & VPN – RU Region Bypass Updated** 
 
 <div align="center">
 
-[![Download Proxy & VPN RU Region](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/proxy-and-vpn-ru-region)
+[![Download Proxy & VPN RU Region](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/SxdZJpmzd6lMyUY0U)
 
 **Version 5.3.0** — Free RU region bypass tool. May 2026 update. Zero cost. No payment.
 
